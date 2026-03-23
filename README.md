@@ -1,1 +1,1 @@
-- Thaís Favore
+- Talita
